@@ -1,3 +1,1 @@
-feferfe 
-cndsihfueru 
-irutjhgnvbbhgjdfl 
+novoye nachalo 
